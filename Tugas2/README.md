@@ -1,0 +1,2 @@
+# Tugas 2
+TI-3A / 29 / Satria Alief Pratama S
